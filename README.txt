@@ -1,2 +1,13 @@
 I'm a newbie.
-hello
+SD
+SAD
+V
+
+BD
+
+DF
+AS
+DVV
+A
+V
+
